@@ -1,1 +1,1 @@
-data analysis case study
+data analysis the example case study
