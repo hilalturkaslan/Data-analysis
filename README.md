@@ -1,1 +1,1 @@
-data analysis the example case study
+data analysis for ai case study
