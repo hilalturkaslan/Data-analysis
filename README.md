@@ -1,1 +1,1 @@
-data analyst for do it this is a ai sample case study
+data analyst do for it this is a ai case study
